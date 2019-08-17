@@ -1,2 +1,2 @@
 # coinsbhite
-coin bhinika tunggal eka
+coin bhineka tunggal eka
